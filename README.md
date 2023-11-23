@@ -2,7 +2,7 @@
 - 👀 I’m interested in Humanity & Life
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on Cat0ïSM
-- 📫 How to reach me @
+- 📫 How to reach me : X https://twitter.com/AtumCat
 
 <!---
 MishkaBlackCat/MishkaBlackCat is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
